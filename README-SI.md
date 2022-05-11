@@ -133,7 +133,7 @@ By establishing the alexa, you are deemed to have accepted these responsibilitie
 
 ## 👨‍💻Developer
 
-[![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://https://youtu.be/mcEeIspWOpY)
+[![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://github.com/whatsappbot2004)
 
 ( Chethana_Bro(Teenuh-X😈)
 <a href="https://Wa.me/+94766598862">
